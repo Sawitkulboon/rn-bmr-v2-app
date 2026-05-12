@@ -4,7 +4,7 @@
 
 &nspj;&nspj;&nspj;&nspj;&nspj;&nspj;
 
-<kbd><img width="922" alt="695666549_1449131289841505_3353955857688184897_n" src="https://github.com/user-attachments/assets/33aae105-6409-4a31-9500-b121834ae356" /><kbd>
+<kbd><img width="250" alt="695666549_1449131289841505_3353955857688184897_n" src="https://github.com/user-attachments/assets/33aae105-6409-4a31-9500-b121834ae356" /><kbd>
 
 
 
